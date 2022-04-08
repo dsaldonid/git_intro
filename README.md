@@ -1,1 +1,2 @@
 Diego Saldonid
+saldonid@oregonstate.edu
